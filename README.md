@@ -1,4 +1,3 @@
-## Hi! My name is Thales
 
 
 
